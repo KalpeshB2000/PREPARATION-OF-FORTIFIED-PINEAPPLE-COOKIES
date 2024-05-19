@@ -1,1 +1,2 @@
 # PREPARATION-OF-FORTIFIED-PINEAPPLE-COOKIES
+Baking Industry is considered as one of the major segments of food processing in India. Baked products are gaining popularity because of their availability, ready to eat convenience and reasonably good shelf life. Cookies are ideal for nutrient availability, palatability, compactness and convenience. New developments are taking place, given the benefits of new knowledge in nutrition science, new process technologies and the modern consumers demand for foods with multiple health benefits.
